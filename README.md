@@ -28,4 +28,3 @@ Aporto 19 años de experiencia laboral previa fuera del sector IT. Esto signific
 
 ### Contacto
 * [LinkedIn](https://www.linkedin.com/in/rosario-alias-ro-g-12b021387/)
-* Correo: tu-email-aqui
